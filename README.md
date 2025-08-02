@@ -1,0 +1,1 @@
+Join DENCHE on a journey across the globe — from backpacking hidden gems to guiding group adventures. Discover destination guides with real budgets, unforgettable experiences, and practical travel tips. Whether you're dreaming of your next escape or ready to book a trip with me, this site brings my adventures to you. Explore. Learn. Travel together
